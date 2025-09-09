@@ -9,7 +9,6 @@
 
 
 
-https://github.com/RS-labhub/I-Love-You/assets/117426013/ed08488c-2096-4f21-b77b-d72781d80537
 
 <br>
 
